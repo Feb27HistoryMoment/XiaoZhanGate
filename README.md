@@ -25,4 +25,5 @@
 >***“敬文学，敬热爱，敬自由。”***
 
 ### 时间线
-### [肖战代言产品、作为宣传大使的产品、主要作品存档]<https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/endorsermentList.md>
+### [肖战代言产品、作为宣传大使的产品、主要作品存档]
+>[肖战代言产品、作为宣传大使的产品]<https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/endorsermentList.md>
