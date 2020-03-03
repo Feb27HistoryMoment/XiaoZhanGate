@@ -3,6 +3,14 @@
 >肖战粉丝由于一篇以肖战为主角的LGBTQ的成人分级二次创作，大规模实名举报连载该文的作者和网站链接，导致AO3等网站被墙，B站同性内容、AO3贴吧、LOFTER大量写手内容被封禁。
 >
 >由于干涉创作自由和肖战官方的不作为和推诿，各中文创作圈集合起来要求抵制肖战并消除影响。
+### 声明
+>全文内容开放转载和使用
+### 时间线
+>[肖战粉丝举报AO3事件时间线](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/Timeline.md)
+### 肖战代言产品、作为宣传大使的产品、主要作品存档
+>[肖战代言产品、作为宣传大使的产品](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/endorsermentList.md)
+
+>[肖战参演电视剧电影（在2月29日之前已完成作品请不要打低星！）](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/TVfilmList.md)
 ### 为什么要记录这件事
 >**“艺术创作不是孤岛，它诞生于群体之中。”**
 >
@@ -23,11 +31,22 @@
 >落下的达摩克利斯之剑不应该被遗忘，这件事亦是如此。互联网应该铭记这件事，铭记肖战粉丝的行为，铭记创作者们的反击，铭记这次事件里失去的点点滴滴。
 >
 >**“敬文学，敬热爱，敬自由。”**
-### 声明
->全文内容开放转载和使用
-### 时间线
->[肖战粉丝举报AO3事件时间线](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/Timeline.md)
-### 肖战代言产品、作为宣传大使的产品、主要作品存档
->[肖战代言产品、作为宣传大使的产品](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/endorsermentList.md)
+### 更新日志
+**3月4日**
+>添加3月3日时间线内容
+>
+>添加2月24日时间线图片证据
 
->[肖战参演电视剧电影（在2月29日之前已完成作品请不要打低星！）](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/TVfilmList.md)
+**3月3日**
+>添加肖战影视作品清单
+>
+>添加时间线文字详情
+>
+>添加3月2日时间线内容
+
+**3月2日**
+> 上传原始文档
+>
+> 添加肖战商务合作清单
+>
+> 添加中文版时间线大纲
