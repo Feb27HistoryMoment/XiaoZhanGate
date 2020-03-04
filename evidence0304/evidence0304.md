@@ -6,7 +6,7 @@
 + **肖战更改INS头像**
 > ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/201.PNG)
 >
-> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/202.PNG)
+> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/202.JPG)
 
 + **肖战粉丝伪装中老年人发微博支持肖战**
 > ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/301.PNG)
@@ -17,16 +17,16 @@
 + **更多app遭举报**
 > ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/501.PNG)
 >
-> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/502.PNG)
+> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/502.JPG)
 
 + **媒体再传网络同人文化触犯法律，引发广泛担忧**
 > ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/601.PNG)
 >
-> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/602.PNG)
+> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/602.JPG)
 
 + **人民日报传媒海南编辑公器私用为肖战发声**
-> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/701.PNG)
+> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/701.JPG)
 >
-> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/702.PNG)
+> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/702.JPG)
 >
-> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/703.PNG)
+> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0304/703.JPG)
