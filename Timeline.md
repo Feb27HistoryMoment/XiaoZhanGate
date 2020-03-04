@@ -9,7 +9,7 @@
 >
 >从2月25日开始，肖战粉丝对作者本人，作者微博文章，at微博网警，开始进行举报。
 
-## 2020年2月26日 [证据存档](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0206/evidence0226.md)
+## 2020年2月26日 [证据存档](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0226/evidence0226.md)
 + **大规模实名举报**
 >微博用户，粉丝量众多的肖战唯粉 @来碗甜粥吗与 @巴南区小兔赞比 公开发声，要求粉丝对《下坠》和另外一篇同人《失灵》进行举报。
 >
