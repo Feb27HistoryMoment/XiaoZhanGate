@@ -4,7 +4,7 @@
 ++ 巴南区小兔赞比扒皮
 > ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0227/1.jpg)
 >
-> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0227/1.png)
+> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0227/2.png)
 
 ++ 肖战粉丝宣言
 > ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0227/3.png)
