@@ -3,3 +3,5 @@
 + **AO3镜像网站无法访问**
 > ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0307/1.PNG)
 
++ **"抵制肖战"话题被封**
+> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0307/2.PNG)
