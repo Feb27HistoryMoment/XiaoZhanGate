@@ -21,7 +21,7 @@
 >
 > ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0229/9.png)
 
-+ **"肖战粉丝举报AO3"信息被Key进以太链*
++ **"肖战粉丝举报AO3"信息被Key进以太链**
 > ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0229/10.PNG)
 >
 > ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0229/11.JPG)
