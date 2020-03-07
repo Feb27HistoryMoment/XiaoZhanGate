@@ -1,5 +1,4 @@
 # 肖战粉丝举报AO3事件时间线
->详细内容逐步编辑中
 
 ## 2020年2月24日 [证据存档](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0224/evidence0224.md)
 + **肖战粉丝号召举报《下坠》**
