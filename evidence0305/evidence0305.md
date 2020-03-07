@@ -29,6 +29,6 @@
 > ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0305/12.PNG)
 
 + **肖战过往涉歧言论被扒**
-> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0305/12.PNG)
+> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0305/13.PNG)
 >
-> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0305/12.PNG)
+> ![image](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/evidence0305/14.PNG)
