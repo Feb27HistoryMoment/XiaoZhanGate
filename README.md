@@ -4,6 +4,8 @@
 >
 >由于干涉创作自由和肖战官方的不作为和推诿，各中文创作圈集合起来要求抵制肖战并消除影响。
 ### 声明
+>感谢整理期间所有网友的帮助与指正
+>
 >全文内容开放转载和使用
 ### 时间线
 >[肖战粉丝举报AO3事件时间线](https://github.com/Feb27HistoryMoment/XiaoZhanGate/blob/master/Timeline.md)
